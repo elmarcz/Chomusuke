@@ -1,3 +1,3 @@
-𝑪𝒉𝒐𝒎𝒖𝒔𝒖𝒌𝒆 es un bot personalizado al milimetro y 24/7 para el servidor ꒰𝑪𝒉𝒐𝒎𝒖𝒔𝒖𝒌𝒆 🌹꒱. 𝑪𝒉𝒐𝒎𝒖𝒔𝒖𝒌𝒆 Es capaz de mandar bienvenidas, niveles, roleo y roleo NSFW.
+𝑪𝒉𝒐𝒎𝒖𝒔𝒖𝒌𝒆 is a 24/7 custom bot for the ꒰𝑪𝒉𝒐𝒎𝒖𝒔𝒖𝒌𝒆 server 🌹꒱. 𝑪𝒉𝒐𝒎𝒖𝒔𝒖𝒌𝒆 It is capable of sending welcomes, levels, roleplay and NSFW roleplay.
 
-Prueba 𝑪𝒉𝒐𝒎𝒖𝒔𝒖𝒌𝒆 entrando al servidor por esta invitación: https://discord.gg/chomusuke
+Try 𝑪𝒉𝒐𝒎𝒎𝒖𝒔𝒖𝒌𝒆 by logging into the server by this invitation: https://discord.gg/chomusuke
